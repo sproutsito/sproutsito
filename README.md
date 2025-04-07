@@ -1,4 +1,4 @@
-## wwip.. :3c
+## man, in never going to make thiz zince im zo lazy...
 
 <!--
 **sproutsito/sproutsito** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
